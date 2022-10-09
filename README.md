@@ -97,11 +97,6 @@ ASMB公链平台未来的发展主要分为三个阶段，在这三个阶段也�
 2023年第一季度正式开启公链(预计延迟。
 
 
-欢迎加入讨论群：[621055261](https://jq.qq.com/?_wv=1027&k=WyFxg78C)
-
-
-![10285515](https://user-images.githubusercontent.com/9838830/186625942-5cc863b9-e8e3-41de-b260-81d75e4f59d8.png)
-
 
 资料：
 
